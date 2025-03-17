@@ -1,3 +1,3 @@
 # AmostraCultural
 
-Eu odeio a ETEC
+Filmes: Toy Story, Mario, Flow, Sonhos Roubados, Extraordinário
