@@ -28,3 +28,31 @@ https://www.youtube.com/watch?v=c_oXbB425Eg
 toy story:
 https://www.youtube.com/watch?v=NEUg5I9367Y&list=PLLQyrCIfk22db1JWRrwyXhGYByBbhvxSJ&index=63
 https://www.youtube.com/watch?v=gz2PCvFMrBo&list=PLLQyrCIfk22db1JWRrwyXhGYByBbhvxSJ&index=64
+
+
+
+## modelos 3d:
+
+Buzz
+https://sketchfab.com/3d-models/buzz-lightyear-ps2-t-pose-3c9c4f3b6bf24cf390fb86a3f9ea74c4
+
+Jessy
+https://sketchfab.com/3d-models/jessie-psp-t-pose-638d6c5905e4435d90ad1f6c091aca1f
+
+Wood
+https://sketchfab.com/3d-models/woody-toy-story-f88d8092b28d4a5d9e3cc4db99ca3aff
+
+todos brinquedos
+https://sketchfab.com/3d-models/toy-story-3-psp-506cd09dc2d24aeb8081184b20583764
+
+brinquedo
+https://sketchfab.com/3d-models/abc-cube-toy-9443ba8835cf41fc8f89249aabf2e38b
+
+quarto
+https://sketchfab.com/3d-models/stewies-bedroom-b2f26defe3f5494d8eb5e3d6611d67b5
+
+cama
+https://sketchfab.com/3d-models/kids-bed-f23d06a8f924458e9207e9249a246453
+
+caixa de brinquedos
+https://sketchfab.com/3d-models/toy-box-8ce01f03c4c54c1bb69f6ba47a590586
