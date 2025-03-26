@@ -33,7 +33,7 @@ https://www.youtube.com/watch?v=gz2PCvFMrBo&list=PLLQyrCIfk22db1JWRrwyXhGYByBbhv
 
 ## modelos 3d:
 
-#toy story
+# toy story
 
 Buzz
 https://sketchfab.com/3d-models/buzz-lightyear-ps2-t-pose-3c9c4f3b6bf24cf390fb86a3f9ea74c4
@@ -59,9 +59,9 @@ https://sketchfab.com/3d-models/kids-bed-f23d06a8f924458e9207e9249a246453
 caixa de brinquedos
 https://sketchfab.com/3d-models/toy-box-8ce01f03c4c54c1bb69f6ba47a590586
 
-##efeitos sonoros
+## efeitos sonoros
 
-#toy story
+# toy story
 
 andando:
 https://pixabay.com/sound-effects/walking-on-wood-268456/
