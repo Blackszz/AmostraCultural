@@ -18,6 +18,11 @@ https://www.youtube.com/watch?v=nr-cpmEb7KM&list=PLoqOgJJaN57YiiY-JrdSvBVCprMPed
 
 fase mario
 https://www.youtube.com/watch?v=P9Ee4TevHfA&list=PL04F6446580894A57&index=3
+https://youtu.be/0-INuS99s5Q?si=KN_HVDSvUKJdGp_b
+https://youtu.be/9McWzCcjvgQ?si=Ujht2wzrBBfmAQ3V
+https://open.spotify.com/track/6yJaezbcpvwikobr6t6Ez3?si=yPQZgYcEQlihnixeQ4M00w&utm_source=copy-link
+
+Ambientação: https://youtu.be/c-Qw79Q_MF4?si=PE3VUXOdJUXgOIKX
 
 entrando no cano do Mario:
 https://www.youtube.com/watch?v=TeCIu8Gk2xY
